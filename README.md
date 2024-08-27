@@ -9,7 +9,7 @@
  ![gif](https://autism.crd.co/assets/images/gallery01/1e0948bf_original.gif?v=1be2f3c4) ![gif](https://autism.crd.co/assets/images/gallery01/1e0948bf_original.gif?v=1be2f3c4) ![gif](https://autism.crd.co/assets/images/gallery01/1e0948bf_original.gif?v=1be2f3c4) 
 
 ![emoji](https://autism.crd.co/assets/images/gallery07/4181e873_original.gif?v=1be2f3c4) Much of my free time is spent on niche interests such as;
-* updating the profiles of my [toyhou.se characters](toyhou.se/mindsmisery)
+* updating the HTML profiles of my [toyhou.se characters](https://toyhou.se/mindsmisery)
 * or otherwise enhancing my other game profiles for a better look.
 
 
