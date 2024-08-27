@@ -1,6 +1,6 @@
 
 
-  ![divider](https://64.media.tumblr.com/7325d84439f0dd8b364abf2e696f65f0/b36456aa19536e8f-42/s400x600/640b219e23be7fbcb3c74dd68f3c650f7a483fea.gifv)
+ 
 
   * sezyral (or mira to those who know me personally)
   
